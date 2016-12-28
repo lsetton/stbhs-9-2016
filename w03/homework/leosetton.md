@@ -1,7 +1,7 @@
 # Leo Setton
 Profile
 
- ###### STHS Football #33
+###### STHS Football #33
 
  - Football is life
  - I play receiver and cornerback
