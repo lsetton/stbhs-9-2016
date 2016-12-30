@@ -15,4 +15,5 @@ Profile
 
 ## links
 
-(http://hackertyper.com/)*
+https://twitter.com/nfl
+
